@@ -1,0 +1,1 @@
+# Activador_Windows
